@@ -1,3 +1,3 @@
 ## Hi there 👋
-![Visitor Count](https://profile-counter.glitch.me/alanluqman/count.svg)
+![Visitor Count+ 1352](https://profile-counter.glitch.me/alanluqman/count.svg)
 
